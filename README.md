@@ -1,18 +1,29 @@
-## ‿︵ ˚₊
-
-
- ╭───────────────────.★..─╮<br/>
+## GENERAL INFO‿︵ ˚₊╮<br/>
+╮<br/>
+╮<br/>
+ ╭────────────────────────────.★..─╮<br/>
  ☆ Hello !! :-) <br/>
  ★ I like to go by swan online <br/>
  ☆ I am 18 years old <br/>
- ★ My age range for friends is 17 - 18+ ! <br/>
+ ★ My age range for friends is 17+ ! <br/>
  ☆ Please talk to me about arcane bro<br/>
- ╰─..★.───────────────────╯<br/>
+ ★ If you follow me here I will follow back !
+ ╰─..★.────────────────────────────╯<br/>
  <br/>
  <br/>
 
 ![taking-aim-sniping](https://github.com/user-attachments/assets/d0d5bd3f-7496-4d7f-97ae-829c7e9b1a32)
 
+## PONY TOWN‿︵˚₊<br/>
+ <br/>
+ <br/>
+╭───────────────────.★..─╮<br/>
+ ☆ 
+ ★ I like to go by swan online <br/>
+ ☆ I am 18 years old <br/>
+ ★ My age range for friends is 17 - 18+ ! <br/>
+ ☆ DNI: Proshippers, <br/>
+ ╰─..★.───────────────────╯<br/>
 <!-- 
 
 **SwanBurial/swanburial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
