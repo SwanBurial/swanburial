@@ -10,7 +10,7 @@
  ╰─..★.────────────────╯<br/>
  <br/>
  <br/>
-˚₊‿︵
+
 ![taking-aim-sniping](https://github.com/user-attachments/assets/d0d5bd3f-7496-4d7f-97ae-829c7e9b1a32)
 ‿︵ ˚₊
 
