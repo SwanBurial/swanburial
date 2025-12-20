@@ -9,7 +9,7 @@
  ☆ Please talk to me about Arcane<br/>
  ╰─..★.────────────────╯<br/>
  
-![walking-caitlyn-kiramman](https://github.com/user-attachments/assets/4072be64-3459-4664-bbff-02795e5e7a2f)
+![taking-aim-sniping](https://github.com/user-attachments/assets/d0d5bd3f-7496-4d7f-97ae-829c7e9b1a32)
 
 
 <!-- 
