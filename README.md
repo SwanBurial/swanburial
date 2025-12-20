@@ -8,8 +8,8 @@
  ☆ My age range is 17 - 18+ ! <br/>
  ☆ Please talk to me about Arcane<br/>
  ╰─..★.────────────────╯<br/>
-
-![caitvi-arcane](https://github.com/user-attachments/assets/c5cb2893-d6c1-40ef-9c31-c7f6f8b6da1a)
+ 
+![walking-caitlyn-kiramman](https://github.com/user-attachments/assets/4072be64-3459-4664-bbff-02795e5e7a2f)
 
 
 <!-- 
