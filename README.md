@@ -2,7 +2,7 @@
 
  ╭──────────.★..─╮
  You found me !
- I like to go by swan online <br/ >
+ I like to go by swan online <br/>
  I'm an 18 year old who does not really like interacting with minors !! 
  My age range is 17 - 18+ :-)
  
