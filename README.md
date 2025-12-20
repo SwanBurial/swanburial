@@ -1,13 +1,13 @@
 ## ‿︵ ˚₊
 
 
- ╭────────────────.★..─╮<br/>
+ ╭───────────────────.★..─╮<br/>
  ☆ Hello !! :-) <br/>
  ★ I like to go by swan online <br/>
  ☆ I am 18 years old <br/>
  ★ My age range for friends is 17 - 18+ ! <br/>
  ☆ I love Arcane dearly <br/>
- ╰─..★.────────────────╯<br/>
+ ╰─..★.───────────────────╯<br/>
  <br/>
  <br/>
 
