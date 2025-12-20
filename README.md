@@ -6,7 +6,7 @@
  ★ I like to go by swan online <br/>
  ☆ I am 18 years old <br/>
  ★ My age range for friends is 17 - 18+ ! <br/>
- ☆ I love Arcane dearly <br/>
+ ☆ Please talk to me about arcane bro<br/>
  ╰─..★.───────────────────╯<br/>
  <br/>
  <br/>
