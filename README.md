@@ -1,14 +1,15 @@
 ## Hi there 👋
 
- ╭──────────.★..─╮
- You found me !
- I like to go by swan online <br/>
- I'm an 18 year old who does not really like interacting with minors !! 
- My age range is 17 - 18+ :-)
- 
- https://tenor.com/view/caitvi-arcane-caitlyn-vi-arcane-season-2-gif-7495094074017143830
+ ╭──────────────────────────.★..─╮
+    I like to go by swan online <br/>
+    I am 18 years old <br/>
+    My age range is 17 - 18+ <br/>
+ ╰─..★.──────────────────────────╯
+
+<img width="315" height="308" alt="Screenshot 2025-12-19 181101" src="https://github.com/user-attachments/assets/5c66ef6c-c4e7-4164-b833-bd06cfd59a60" />
 
 <!-- 
+
 **SwanBurial/swanburial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
