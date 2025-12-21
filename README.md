@@ -29,10 +29,9 @@
  <br/>
  <br/>
 
-![walking-caitlyn-kiramman (1)](https://github.com/user-attachments/assets/72a3d7d7-3fb9-41b4-9e7d-df5ba1a9f7b2)
+![caitlyn-kiramman-caitlyn-arcane](https://github.com/user-attachments/assets/f61699ec-9bc8-4427-916f-f92269871593)
 
 
- 
 <!-- 
 
 **SwanBurial/swanburial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
