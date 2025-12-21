@@ -29,7 +29,8 @@
  <br/>
  <br/>
 
-![the-blade-cuts-both-ways-caitlyn-kiramman](https://github.com/user-attachments/assets/796f1312-4b21-4c64-9db6-109e91df1937)
+![walking-caitlyn-kiramman (1)](https://github.com/user-attachments/assets/72a3d7d7-3fb9-41b4-9e7d-df5ba1a9f7b2)
+
 
  
 <!-- 
