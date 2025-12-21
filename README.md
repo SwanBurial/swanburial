@@ -18,13 +18,13 @@
  <br/>
  <br/>
  ╭──────────────────────.★..─╮<br/>
- ☆ Feel free to talk to me !
- ★ I don't usually talk first unless it's for a compliment cause I get nervous !!
- ☆ ^ W2i, I'm very friendly just be patient with me ;-) 
- ★ C+H are always welcome !!
- ☆ You can usually find me near the docks / by the stores
- ★ DNI: Proshippers, Ranfen, Hazbina/Helluva
- ☆ ^ I am anti-harassment but I do block freely gulp
+ ☆ Feel free to talk to me !<br/>
+ ★ I don't usually talk first unless it's for a compliment cause I get nervous !!<br/>
+ ☆ ^ W2i, I'm very friendly just be patient with me ;-) <br/>
+ ★ C+H are always welcome !!<br/>
+ ☆ You can usually find me near the docks / by the stores<br/>
+ ★ DNI: Proshippers, Ranfen, Hazbina/Helluva<br/>
+ ☆ ^ I am anti-harassment but I do block freely gulp<br/>
  ╰─..★.──────────────────────╯<br/>
  <br/>
  <br/>
