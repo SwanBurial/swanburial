@@ -28,6 +28,9 @@
  ╰─..★.──────────────────────╯<br/>
  <br/>
  <br/>
+
+![the-blade-cuts-both-ways-caitlyn-kiramman](https://github.com/user-attachments/assets/796f1312-4b21-4c64-9db6-109e91df1937)
+
  
 <!-- 
 
