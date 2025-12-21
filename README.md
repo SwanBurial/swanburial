@@ -6,8 +6,8 @@
  ★ I like to go by swan online <br/>
  ☆ I am 18 years old <br/>
  ★ My age range for friends is 17+ ! <br/>
- ☆ Please talk to me about arcane bro<br/>
- ★ If you follow me here I will follow back !<br/>
+ ☆ Please talk to me about Arcane bro <br/>
+ ★ If you follow me here I will follow back <br/>
  ╰─..★.──────────────────────╯<br/>
  <br/>
  <br/>
@@ -18,13 +18,17 @@
  <br/>
  <br/>
  ╭──────────────────────.★..─╮<br/>
- ☆ Hello !! :-) <br/>
- ★ I like to go by swan online <br/>
- ☆ I am 18 years old <br/>
- ★ My age range for friends is 17+ ! <br/>
- ☆ Please talk to me about arcane bro<br/>
- ★ If you follow me here I will follow back !<br/>
+ ☆ Feel free to talk to me !
+ ★ I don't usually talk first unless it's for a compliment cause I get nervous !!
+ ☆ ^ W2i, I'm very friendly just be patient with me ;-) 
+ ★ C+H are always welcome !!
+ ☆ You can usually find me near the docks / by the stores
+ ★ DNI: Proshippers, Ranfen, Hazbina/Helluva
+ ☆ ^ I am anti-harassment but I do block freely gulp
  ╰─..★.──────────────────────╯<br/>
+ <br/>
+ <br/>
+ 
 <!-- 
 
 **SwanBurial/swanburial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
