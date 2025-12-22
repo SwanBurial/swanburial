@@ -1,4 +1,4 @@
-
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=perisicnikola37)
 ## GENERAL INFO‿︵ ˚₊<br/>
 <br/>
 <br/>
