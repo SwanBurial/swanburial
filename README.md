@@ -23,7 +23,7 @@
  ☆ ^ W2i, I'm very friendly just be patient with me ;-) <br/>
  ★ C+H / ships are always welcome !!<br/>
  ☆ You can usually find me near the docks / by the stores<br/>
- ★ DNI: Proshippers, Ranfen, Hazbin/Helluva, Caitlyn/Vi haters <br/>
+ ★ DNI: Proshippers, Ranfen, Caitlyn/Vi haters <br/>
  ☆ ^ I am anti-harassment but I do block freely.. gulp<br/>
  ╰─..★.──────────────────────╯<br/>
  <br/>
