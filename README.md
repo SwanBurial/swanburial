@@ -2,7 +2,7 @@
 <br/>
 <br/>
  ╭──────────────────────.★..─╮<br/>
- ☆ Hello !! :-) <br/>
+ ☆ Hello !! :-) <br/>                                                                                           <img width="377" height="367" alt="jearts-removebg-preview" src="https://github.com/user-attachments/assets/067e5896-51dd-4ec0-9c04-a184f5328896" />
  ★ I like to go by swan online <br/>
  ☆ I am 18 years old <br/>
  ★ My age range for friends is 17+ ! <br/>
