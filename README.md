@@ -19,7 +19,7 @@
  <br/>
  <br/>
  ╭──────────────────────.★..─╮<br/>
- ☆ Feel free to talk to me !<br/>
+ ☆ Feel free to talk to me !<br/> ${\textsf{\color{#FF784C}the eight arms around you}}$?
  ★ I don't usually talk first unless it's for a compliment cause I get nervous !!<br/>
  ☆ ^ W2i, I'm very friendly just be patient with me ;-) <br/>
  ★ C+H / ships are always welcome !!<br/>
