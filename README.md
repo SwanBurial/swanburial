@@ -9,6 +9,7 @@
  ★ My age range for friends is 17+ ! <br/>
  ☆ Please talk to me about Arcane bro <br/>
  ★ If you follow me here I will follow back <br/>
+ ☆ Tone tags are not a necessity when talking to me, but they are appreciated ! <br/>
  ╰─..★.──────────────────────╯<br/>
  <br/>
  <br/>
