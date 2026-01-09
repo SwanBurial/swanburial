@@ -25,7 +25,8 @@
  ★ C+H / ships are always welcome !!<br/>
  ☆ You can usually find me near the docks / by the stores<br/>
  ★ DNI: Proshippers, The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel & Helluva Boss fans, avid Caitlyn/Vi haters (I don't care that much just don't be weird..) <br/>
- ☆ ^ I am anti-harassment but I do block freely.. gulp<br/>
+ ☆ https://rentry.co/dnfifreaks
+ ★ ^ I am anti-harassment but I do block freely.. gulp<br/>
  ╰─..★.──────────────────────╯<br/>
  <br/>
  <br/>
