@@ -1,4 +1,5 @@
-
+<details>
+  <summary>ebdlfn</summary>
 
 ## GENERAL INFO‿︵ ˚₊<br/>
 <br/> 
