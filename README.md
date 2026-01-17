@@ -2,7 +2,7 @@
 ## GENERAL INFO‿︵ ˚₊<br/>
 <br/> 
 <br/>
-${\color{#FF66BB} ╭──────────────────────.★..─╮}$
+ ╭──────────────────────.★..─╮
  ☆ Hello !! :-) <br/>                                                                                          
  ★ I like to go by swan online <br/>
  ☆ I am 18 years old <br/>
