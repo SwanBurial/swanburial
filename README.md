@@ -1,10 +1,4 @@
 
- <details>
-  <summary>ABOUT ME~!</summary>${\color{#h2C359C}ABOUT ME~!}$
-
-fnnfnf
-
-fnkfbf
 <!-- 
 
 **SwanBurial/swanburial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
