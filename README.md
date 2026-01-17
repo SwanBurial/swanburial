@@ -1,6 +1,6 @@
 
-
-## GENERAL INFO‿︵ ˚₊<br/>
+<details>
+  <summary>## GENERAL INFO‿︵ ˚₊<br/></summary>
 <br/> 
 <br/>
  ╭──────────────────────.★..─╮ <br/>
