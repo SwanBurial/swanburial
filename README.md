@@ -1,5 +1,10 @@
-if u see this rn i'm redoing my entire github... gulp... check back later
- 
+
+ <details>
+  <summary>ebdlfn</summary>
+  ${\color{#f3a4ce]BASIC]$ ${\color{#f3a4ce}INFO}$
+fnnfnf
+
+fnkfbf
 <!-- 
 
 **SwanBurial/swanburial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
