@@ -1,6 +1,6 @@
 
  <details>
-  <summary>ebdlfn</summary>
+  <summary>ABOUT ME~!</summary>   ${\color{#h2C359C}ABOUT ME~!}$
 
 fnnfnf
 
