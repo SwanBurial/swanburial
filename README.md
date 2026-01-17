@@ -1,7 +1,7 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=perisicnikola37)
 ## GENERAL INFO‿︵ ˚₊<br/>
 <br/>
-<br/>
+<br/> ${\color{#hex code}TEXT HERE}$
  ╭──────────────────────.★..─╮<br/>
  ☆ Hello !! :-) <br/>                                                                                          
  ★ I like to go by swan online <br/>
