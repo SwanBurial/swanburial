@@ -1,4 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=swanburial)
+![Lovers counter on GitHub](https://komarev.com/ghpvc/?username=swanburial)
 ## GENERAL INFO‿︵ ˚₊<br/>
 <br/> 
 <br/>
