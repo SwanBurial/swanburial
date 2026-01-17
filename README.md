@@ -1,7 +1,7 @@
 
  <details>
   <summary>ebdlfn</summary>
-  ${\color{#f3a4ce]BASIC]$ ${\color{#f3a4ce}INFO}$
+
 fnnfnf
 
 fnkfbf
