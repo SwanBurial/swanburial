@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=c(swanburial)&color=(#273C8A)&style=plastic&label=(lols)
+![](https://komarev.com/ghpvc/?username=c(SwanBurial)&color=(#273C8A)&style=plastic&label=(lols)
 
 ## GENERAL INFO‿︵ ˚₊<br/>
 <br/> 
