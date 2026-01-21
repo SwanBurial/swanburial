@@ -8,7 +8,7 @@ GENERAL INFO‿︵ ˚₊<br/>
  ★ My age range for friends is 17+ ! <br/>
  ☆ Please talk to me about Arcane bro <br/>
  ★ Tone tags are not a necessity when talking to me, but they are greatly appreciated ! <br/>
- ☆ My interests are (but not exclusive to) Arcane (hyperfix), dandy's world, rainworld, cry of fear, stray, all little nightmare's games, cult of the lamb, dispatch, etc.. <br/>
+ ☆ My interests are (but not exclusive to) Arcane (BIGGEST hyperfix..), Dandy's World, Spelunking, Rainworld, My Little Pony, The Amazing Digital Circus, Cry of Fear, Stray, Little Nightmare's, Cult of the Lamb, Dispatch, etc.. <br/>
  ╰─..★.──────────────────────╯<br/>
  <br/>
  <br/>
@@ -22,11 +22,10 @@ PONY TOWN‿︵˚₊<br/>
  ☆ Feel free to talk to me !<br/> 
  ★ I don't usually talk first unless it's for a compliment cause I get nervous !!<br/>
  ☆ ^ W2i, I'm very friendly just be patient with me ;-) <br/>
- ★ C+H / ships are always welcome !! DOn't be weird <br/>
+ ★ C+H / ships are always welcome !! Don't be weird ,, <br/>
  ☆ You can usually find me near the docks / by the stores<br/>
- ★ DNI: Proshippers, The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel & Helluva Boss fans, avid Caitlyn/Vi haters (I don't care that much just don't be weird..) <br/>
- ☆ ^ https://rentry.co/dnfifreaks<br/>
- ★ ^^ I am anti-harassment but I do block freely.. gulp<br/>
+ ★ DNI: Proshippers/Darkshippers/Anything of the sort, The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel & Helluva Boss fans, rude nonsharing yumes, avid Caitlyn/Vi haters (I don't care that much just be respectful really,,) <br/>
+ ☆ ^ I am anti-harassment but I do block freely.. gulp<br/>
  ╰─..★.──────────────────────╯<br/>
  <br/>
  <br/>
