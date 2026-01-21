@@ -3,7 +3,7 @@ GENERAL INFO‿︵ ˚₊<br/>
 <br/>
 
  ╭──────────────────────.★..─╮<br/>
- ★ I like to go by Swan/Cupcake/Kiramman online :-)
+ ★ I like to go by Swan/Cupcake/Kiramman online :-)<br/>
  ☆ I am 18 years old <br/>
  ★ My age range for friends is 17+ ! <br/>
  ☆ Please talk to me about Arcane bro <br/>
