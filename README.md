@@ -8,7 +8,7 @@ GENERAL INFO‿︵ ˚₊<br/>
  ★ My age range for friends is 17+ ! <br/>
  ☆ Please talk to me about Arcane bro <br/>
  ★ Tone tags are not a necessity when talking to me, but they are greatly appreciated ! <br/>
- ☆ My interests are (but not exclusive to) Arcane (hyperfix), dandy's world, rainworld, cry of fear, stray, all little nightmare's games, cult of the lamb, dispatch, etc..
+ ☆ My interests are (but not exclusive to) Arcane (hyperfix), dandy's world, rainworld, cry of fear, stray, all little nightmare's games, cult of the lamb, dispatch, etc.. <br/>
  ╰─..★.──────────────────────╯<br/>
  <br/>
  <br/>
