@@ -4,7 +4,7 @@ GENERAL INFO‿︵ ˚₊<br/>
 
  ╭──────────────────────.★..─╮<br/>
  ★ I like to go by Swan/Cupcake/Kiramman online :-)<br/>
- ☆ I am 18 years old <br/>
+ ☆ I am an 18 year old lesbian xP <br/>
  ★ My age range for friends is 17+ ! <br/>
  ☆ Please talk to me about Arcane bro <br/>
  ★ Tone tags are not a necessity when talking to me, but they are greatly appreciated ! <br/>
