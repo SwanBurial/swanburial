@@ -20,7 +20,7 @@ PONY TOWN‿︵˚₊<br/>
  <br/>
  ╭──────────────────────.★..─╮<br/>
  ☆ Feel free to talk to me !<br/> 
- ★ I don't usually talk first unless it's for a compliment cause I get nervous !!<br/>
+ ★ I don't usually talk first unless it's for a compliment <br/>
  ☆ ^ W2i, I'm very friendly just be patient with me ;-) <br/>
  ★ C+H / ships are always welcome !! Don't be weird ,, <br/>
  ☆ You can usually find me near the docks / by the stores<br/>
