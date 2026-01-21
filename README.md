@@ -22,7 +22,7 @@ PONY TOWN‿︵˚₊<br/>
  ☆ Feel free to talk to me !<br/> 
  ★ I don't usually talk first unless it's for a compliment <br/>
  ☆ ^ W2i, I'm very friendly just be patient with me ;-) <br/>
- ★ C+H / ships are always welcome !! Don't be weird ,, <br/>
+ ★ C+H is very encouraged, even if we don't talk and/or have not met ! Ships are welcome as well, just don't be weird ,, <br/>
  ☆ You can usually find me near the docks / by the stores<br/>
  ★ I do not roleplay on here, so please do not pretend to with me ! I will not act like the character I am cosplaying as <br/>
  ☆ DNI: Proshippers/Darkshippers/Anything problematic of the sort, The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel & Helluva Boss fans, rude nonsharing yumes, avid Caitlyn/Vi haters (I don't care that much just be respectful really,,) <br/>
