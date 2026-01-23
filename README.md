@@ -38,19 +38,17 @@ $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔
 
   <div align="left">
 
-✧ TXTXTXTXTXTXTXTTXTXTXTXT<br/>
-✦ $\color{#403A93}{\textup{XTTXTXTXTXTXTXTXTXTXTXTXTXTXTXTTXTXTXTXTXTX}}$<br/>
-✧ $\color{#9a938c}{\textup{TXTXTXTXTXTXTXTXTX}}$<br/>
-✦ XTXTXTTXTXTXTXTXTXTXT<br/>
-✧ $\color{#9a938c}{\textup{XTXTXT}}$ <br/>
+✧ Homophobes, transphobes, racists, republicans, etc ,,<br/>
+✦ $\color{#403A93}{\textup{Proshippers/Darkshippers/Anything problematic of the sort}}$<br/>
+✧ $\color{#9a938c}{\textup{The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel & Helluva Boss fans}}$<br/>
+✦ Rude, nonsharing yumes<br/>
+✧ $\color{#9a938c}{\textup{avid Caitlyn/Vi haters (I don't care that much just be respectful really,,)}}$ <br/>
 </details>
 　
 
 𓂃 001. 　󠁯 　󠁯•󠁏 　󠁯 　𓂃 <ins>002.</ins> 　󠁯 　󠁯•󠁏 　󠁯 　𓂃 <ins>003.</ins>
 
-</div>
-Image
-Image
+
 <!-- 
 
 **SwanBurial/swanburial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
