@@ -1,11 +1,11 @@
 <div align="center">
 
 
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=403A93&width=435&lines=In+what+mad+world+..;+would+I+trust+someone+like+you+%3F)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=hi+mae+pls+add+a+quote+here+idk)](https://git.io/typing-svg)
 <p>
   <img src="https://i.postimg.cc/02JYpDL2/Untitled2344-20260118102410.png"width=500>
 
-![](https://komarev.com/ghpvc/?username=SwanBurial&color=403A93&style=plastic&label=KIRALINGS)
+![](https://komarev.com/ghpvc/?username=swanburial&color=403A93&style=plastic&label=KIRALINGS)
 </p>
 
 
@@ -20,29 +20,29 @@ $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔
 
  　
 <details>
-  <summary>$\huge{\textsf{﹒﹒𝓑YI}}$</summary> 
+  <summary>$\huge{\textsf{﹒﹒𝓓NI}}$</summary> 
 
   <div align="left">
 
-$\color{#9a938c}{\textup{TXTXTXTXTXTXTXTTXTXTXTXT}}$<br/>
-$\color{#403A93}{\textup{XTTXTXTXTXTXTXTXTXTXTXTXTXTXTXTTXTXTXTXTXTX}}$<br/>
-TXTXTXTXTXTXTXTXTX<br/>
-$\color{#9a938c}{\textup{XTXTXTTXTXTXTXTXTXTXT}}$<br/>
-$\color{#403A93}{\textup{XTXTXT}}$<br/>
+$\color{#9a938c}{\textup{TXTXTXTXTXTXTXTTXTXTXTXT}}$
+$\color{#403A93}{\textup{XTTXTXTXTXTXTXTXTXTXTXTXTXTXTXTTXTXTXTXTXTX}}$
+TXTXTXTXTXTXTXTXTX
+$\color{#9a938c}{\textup{XTXTXTTXTXTXTXTXTXTXT}}$
+$\color{#403A93}{\textup{XTXTXT}}$
 </div>
 </details>
 
 
 <details>
-  <summary>$\huge{\textsf{﹒﹒𝓓NI}}$</summary>
+  <summary>$\huge{\textsf{﹒﹒𝓑YI}}$</summary>
 
   <div align="left">
 
-TXTXTXTXTXTXTXTTXTXTXTXT<br/>
-$\color{#403A93}{\textup{XTTXTXTXTXTXTXTXTXTXTXTXTXTXTXTTXTXTXTXTXTX}}$<br/>
-$\color{#9a938c}{\textup{TXTXTXTXTXTXTXTXTX}}$<br/>
-XTXTXTTXTXTXTXTXTXTXT<br/>
-$\color{#9a938c}{\textup{XTXTXT}}$<br/>
+TXTXTXTXTXTXTXTTXTXTXTXT
+$\color{#403A93}{\textup{XTTXTXTXTXTXTXTXTXTXTXTXTXTXTXTTXTXTXTXTXTX}}$
+$\color{#9a938c}{\textup{TXTXTXTXTXTXTXTXTX}}$
+XTXTXTTXTXTXTXTXTXTXT
+$\color{#9a938c}{\textup{XTXTXT}}$
 </details>
 　
 
