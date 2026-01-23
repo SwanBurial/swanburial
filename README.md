@@ -26,9 +26,9 @@ $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔
   <div align="left">
 
 ✧ $\color{#9a938c}{\textup{TXTXTXTXTXTXTXTTXTXTXTXT}}$ <br/>
-✧ $\color{#403A93}{\textup{XTTXTXTXTXTXTXTXTXTXTXTXTXTXTXTTXTXTXTXTXTX}}$ <br/>
+✦ $\color{#403A93}{\textup{XTTXTXTXTXTXTXTXTXTXTXTXTXTXTXTTXTXTXTXTXTX}}$ <br/>
 ✧ TXTXTXTXTXTXTXTXTX<br/>
-✧ $\color{#9a938c}{\textup{XTXTXTTXTXTXTXTXTXTXT}}$<br/>
+✦ $\color{#9a938c}{\textup{XTXTXTTXTXTXTXTXTXTXT}}$<br/>
 ✧ $\color{#403A93}{\textup{XTXTXT}}$<br/>
 </div>
 </details>
@@ -40,9 +40,9 @@ $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔
   <div align="left">
 
 ✧ TXTXTXTXTXTXTXTTXTXTXTXT<br/>
-✧ $\color{#403A93}{\textup{XTTXTXTXTXTXTXTXTXTXTXTXTXTXTXTTXTXTXTXTXTX}}$<br/>
+✦ $\color{#403A93}{\textup{XTTXTXTXTXTXTXTXTXTXTXTXTXTXTXTTXTXTXTXTXTX}}$<br/>
 ✧ $\color{#9a938c}{\textup{TXTXTXTXTXTXTXTXTX}}$<br/>
-✧ XTXTXTTXTXTXTXTXTXTXT<br/>
+✦ XTXTXTTXTXTXTXTXTXTXT<br/>
 ✧ $\color{#9a938c}{\textup{XTXTXT}}$ <br/>
 </details>
 　
