@@ -50,7 +50,7 @@ If I do something that upsets you, please let me know ! I will never be upset ^_
 
   <div align="left">
 
-✧ $\color{#403A93}{\textup{Homophobes, transphobes, racists, republicans, those who identify exclusively as men ,,,}}$<br/>
+✧ $\color{#403A93}{\textup{Homophobes, transphobes, racists, republicans, those who identify **exclusively** as men ,,,}}$<br/>
 ✦ $\color{#9a938c}{\textup{Proshippers/Darkshippers/Anything problematic of the sort}}$ <br/>
 ✧ The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel / Helluva Boss fans <br/>
 ✦ $\color{#9a938c}{\textup{Anyone under 17 ! I don't mind chatting, but don't expect me to add you}}$ <br/>
