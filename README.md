@@ -19,7 +19,7 @@
 <div align="center">
 Lesbian final boss /j <br/>
 <div align="center"> <br/>
-W2i ¡¡ I'm usually offtab <br/>
+W2i - I'm usually offtab <br/>
   <div align="center"> <br/>
 C+H is encouraged, even if we don't talk and/or have not met ! Ships are welcome as well, just don't be weird with them lwky <br/>
     <div align="center"> <br/>
@@ -41,9 +41,9 @@ If I do something that upsets you, please let me know ! I will never be upset ov
 
   <div align="left">
 
-✦ $\color{#9a938c}{\textup{I don't usually talk first cause I get nervous, but I love to talk, I just ask for patience whle doing so ;-) }}$ <br/>
+✦ $\color{#9a938c}{\textup{I don't usually talk first cause I get nervous, but I love to talk, I just ask for patience when doing so ;-) }}$ <br/>
 ✧ $\color{#403A93}{\textup{Tone tags are not a necessity when talking to me, but they are greatly appreciated ! }}$ <br/>
-✦ $\color{#F5F5F5}{\textup{I do not roleplay on here, so please do not pretend to with me ! I will not act like the character I am cosplaying as ,,}}$ <br/>
+✦ $\color{#F5F5F5}{\textup{I do not roleplay on here, so please do not pretend to with me. I will not act like the character I am cosplaying as}$ <br/>
 ✧ $\color{#403A93}{\textup{I am anti-harassment but I do block freely ,, gulp }}$ <br/>
 ✦ $\color{#9a938c}{\textup{Joke flirting is fine I truly dgaf}}$ <br/>
 
@@ -56,7 +56,7 @@ If I do something that upsets you, please let me know ! I will never be upset ov
 
   <div align="left">
 
-✧ $\color{#403A93}{\textup{Homophobes, transphobes, racists, republicans, those who identify /exclusively/ as men (genderfluid, bigender, etc, not included)}}$<br/>
+✧ $\color{#403A93}{\textup{Homophobes, transphobes, racists, republicans, those who identify exclusively as men (genderfluid, bigender, etc, not included)}}$<br/>
 ✦ $\color{#9a938c}{\textup{Proshippers/Darkshippers/Anything problematic of the sort}}$ <br/>
 ✧ $\color{#F5F5F5}{\textup{The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel / Helluva Boss fans}}$ <br/>
 ✦ $\color{#9a938c}{\textup{Anyone under 17 ! I don't mind chatting, but don't expect me to add you}}$ <br/>
