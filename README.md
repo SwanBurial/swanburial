@@ -25,7 +25,7 @@ If I do something that upsets you, please let me know ! I will never be upset ov
       <br/>
 <img src="https://64.media.tumblr.com/4b7d56533eda20eaea74b4734f3a01f6/136f59329199be26-cb/s400x600/8fb106ebcc5486258456d07607c1ce367bb19c51.pnj" width=500>
 
- $\color{#9a938c}{\textup{I don't usually talk first cause I get nervous, but I love to talk, I just ask for patience whle doing so ;-) }}$ <br/>
+ $\color{#9a938c}{\textup{𝓘𝓝𝓣𝓔𝓡𝓔𝓢𝓣𝓢}}$ <br/>
 
 <img src="https://github.com/user-attachments/assets/f61699ec-9bc8-4427-916f-f92269871593" width="150">  　　<img src="https://github.com/user-attachments/assets/d0d5bd3f-7496-4d7f-97ae-829c7e9b1a32" width="133">
 
