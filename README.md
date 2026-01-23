@@ -11,7 +11,7 @@
 
 ### $\color{#403A93}{\textup{゛𝓒𝓤𝓟𝓒𝓐𝓚𝓔　　𓏵　　𝓚𝓘𝓡𝓐𝑀𝑀𝒜𝒩}}$ <br/> 
 ʚɞ <br/> 
-### $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔𝓝.ᐟ.ᐟ.ᐟ}}$ <br/> 
+$\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔𝓝.ᐟ.ᐟ.ᐟ}}$ <br/> 
 <br/>
 <br/>
 <div align="center">
