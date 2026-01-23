@@ -27,8 +27,8 @@ $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔
 ✧ $\color{#9a938c}{\textup{TXTXTXTXTXTXTXTTXTXTXTXT}}$ <br/>
 ✦ $\color{#403A93}{\textup{XTTXTXTXTXTXTXTXTXTXTXTXTXTXTXTTXTXTXTXTXTX}}$ <br/>
 ✧ TXTXTXTXTXTXTXTXTX<br/>
-✦ $\color{#9a938c}{\textup{XTXTXTTXTXTXTXTXTXTXT}}$<br/>
-✧ $\color{#403A93}{\textup{XTXTXT}}$<br/>
+✦ $\color{#403A93}{\textup{XTXTXTTXTXTXTXTXTXTXT}}$<br/>
+✧ $\color{#9a938c}{\textup{XTXTXT}}$<br/>
 </div>
 </details>
 
@@ -38,11 +38,11 @@ $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔
 
   <div align="left">
 
-✧ Homophobes, transphobes, racists, republicans, etc ,,<br/>
-✦ $\color{#403A93}{\textup{Proshippers/Darkshippers/Anything problematic of the sort}}$ <br/>
-✧ $\color{#9a938c}{\textup{The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel / Helluva Boss fans}}$<br/>
-✦ Rude, nonsharing yumes<br/>
-✧ $\color{#9a938c}{\textup{avid Caitlyn/Vi haters (I don't care that much just be respectful really,,)}}$ <br/>
+✧ $\color{#403A93}{\textup{Homophobes, transphobes, racists, republicans, etc ,,<br/>}}$
+✦ $\color{#9a938c}{\textup{Proshippers/Darkshippers/Anything problematic of the sort}}$ <br/>
+✧ The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel / Helluva Boss fans <br/>
+✦ $\color{#9a938c}{\textup{Rude, nonsharing yumes}}$ <br/>
+✧ $\color{#403A93}{\textup{avid Caitlyn/Vi haters (I don't care that much, I'm just asking for you to be respectful ,,)}}$ <br/>
 </details>
 　
 
