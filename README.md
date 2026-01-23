@@ -15,6 +15,7 @@ $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔
 
 <div align="center">
 Lesbian woke feminist final boss /j
+  
 W2i !! I'm usually offtab 
 C+H is very encouraged, even if we don't talk and/or have not met ! Ships are welcome as well, just don't be weird with them lwky
 You can usually find me near the docks / by the stores ;-P
