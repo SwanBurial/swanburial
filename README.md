@@ -27,7 +27,7 @@ If I do something that upsets you, please let me know ! I will never be upset ov
 
  · · ─ ·ʚɞ $\color{#9a938c}{\textup{𝓘𝓝𝓣𝓔𝓡𝓔𝓢𝓣𝓢}}$ ʚɞ· ─ · · <br/> 
  <div align="center">
- Entomology <div align="left"> Arcane (BIGGEST hyperfix..) <div align="left"> Dandy's World,  <div align="left"> Spelunking, <div align="left"> Rainworld,  <div align="left"> My Little Pony, <div align="left"> The Amazing Digital Circus, <div align="left"> Cry of Fear, <div align="left"> Stray, <div align="left"> Little Nightmares, <div align="left"> Cult of the Lamb,<div align="left"> Dispatch, etc.
+ Entomology <div align="center"> Arcane (BIGGEST hyperfix..) <div align="center"> Dandy's World,  <div align="center"> Spelunking, <div align="center"> Rainworld,  <div align="center"> My Little Pony, <div align="center"> The Amazing Digital Circus, <div align="center"> Cry of Fear, <div align="center"> Stray, <div align="center"> Little Nightmares, <div align="center"> Cult of the Lamb,<div align="center"> Dispatch, etc.
  
 
 <img src="https://github.com/user-attachments/assets/f61699ec-9bc8-4427-916f-f92269871593" width="150">  　　<img src="https://github.com/user-attachments/assets/d0d5bd3f-7496-4d7f-97ae-829c7e9b1a32" width="133">
