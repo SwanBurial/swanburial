@@ -13,7 +13,7 @@
 ʚɞ <br/> 
 ### $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔𝓝.ᐟ.ᐟ.ᐟ}}$ <br/> 
 <br/>
-##<br/> 
+<br/> 
  · · ─ ·ʚɞ $\color{#9a938c}{\textup{𝓘𝓝𝓣𝓔𝓡𝓔𝓢𝓣𝓢}}$ ʚɞ· ─ · · <br/> 
 
 <div align="center">
