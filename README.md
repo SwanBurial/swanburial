@@ -5,7 +5,7 @@
 <p>
   <img src="https://i.postimg.cc/02JYpDL2/Untitled2344-20260118102410.png"width=500>
 
-![](https://komarev.com/ghpvc/?username=swanburial&color=403A93&style=plastic&label=KIRALINGS)
+![](https://komarev.com/ghpvc/?username=SwanBurial&color=403A93&style=plastic&label=KIRALINGS)
 </p>
 
 
