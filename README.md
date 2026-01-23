@@ -60,7 +60,7 @@ If I do something that upsets you, please let me know ! I will never be upset ov
 ✦ $\color{#9a938c}{\textup{Proshippers/Darkshippers/Anything problematic of the sort}}$ <br/>
 ✧ $\color{#F5F5F5}{\textup{The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel / Helluva Boss fans}}$ <br/>
 ✦ $\color{#9a938c}{\textup{Anyone under 17 ! I don't mind chatting, but don't expect me to add you}}$ <br/>
-✧ $\color{#403A93}{\textup{Rude, nonsharing yumes / 'doubles dni' ,, avid Caitlyn/Vi haters (I don't care that much, I'm just asking for you to be respectful ,,)}}$ <br/>
+✧ $\color{#403A93}{\textup{Rude, nonsharing yumes / 'doubles dni' ,, avid Caitlyn/Vi haters (I don't care that much, I'm just asking for you to be respectful)}}$ <br/>
 </details>
 
  </div>
