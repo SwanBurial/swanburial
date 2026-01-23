@@ -13,8 +13,7 @@
 ʚɞ <br/> 
 $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔𝓝.ᐟ.ᐟ.ᐟ}}$ <br/> 
 <br/>
-<br/>
-<div align="center">
+
  · · ─ ·ʚɞ $\color{#403A93}{\textup{𝓐𝓑𝓞𝓤𝓣 𝓜𝓔}}$ ʚɞ· ─ · · <br/> 
 
 <div align="center">
