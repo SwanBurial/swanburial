@@ -37,8 +37,8 @@ If I do something that upsets you, please let me know ! I will never be upset ^_
 
 ✦ $\color{#9a938c}{\textup{I don't usually talk first cause I get nervous, but I love to talk, I just ask for patience whle doing so ;-) }}$ <br/>
 ✧ $\color{#403A93}{\textup{Tone tags are not a necessity when talking to me, but they are greatly appreciated ! }}$ <br/>
-✦ $\color{#F2F3F5}{\textup{I do not roleplay on here, so please do not pretend to with me ! I will not act like the character I am cosplaying as ,,}}$<br/>
-✧ $\color{#403A93}{\textup{I AM anti-harassment but I do block freely ,, gulp }}}$ <br/>
+✦ $\color{#F2F3F5}{\textup{I do not roleplay on here, so please do not pretend to with me ! I will not act like the character I am cosplaying as ,,}}$ <br/>
+✧ $\color{#403A93}{\textup{I AM anti-harassment but I do block freely ,, gulp }}$ <br/>
 ✦ $\color{#9a938c}{\textup{Joke flirting is fine I truly dgaf}}$ <br/>
 
 </div>
