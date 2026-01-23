@@ -14,10 +14,12 @@ $\color{#403A93}{\textup{゛𝓒𝓤𝓟𝓒𝓐𝓚𝓔　　𓏵　　𝓚𝓘
 $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔𝓝.ᐟ.ᐟ.ᐟ}}$
 
 <div align="center">
-Lesbian woke feminist final boss /j
-  
-W2i !! I'm usually offtab 
+Lesbian final boss /j
+<div align="center">
+W2i !! I'm usually offtab
+  <div align="center">
 C+H is very encouraged, even if we don't talk and/or have not met ! Ships are welcome as well, just don't be weird with them lwky
+    <div align="center">
 You can usually find me near the docks / by the stores ;-P
 
 <img src="https://64.media.tumblr.com/4b7d56533eda20eaea74b4734f3a01f6/136f59329199be26-cb/s400x600/8fb106ebcc5486258456d07607c1ce367bb19c51.pnj" width=500>
