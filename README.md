@@ -40,7 +40,7 @@ $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔
 
 ✧ Homophobes, transphobes, racists, republicans, etc ,,<br/>
 ✦$\color{#403A93}{\textup{Proshippers/Darkshippers/Anything problematic of the sort}$ <br/>
-✧ $\color{#9a938c}{\textup{The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel & Helluva Boss fans}}$<br/>
+✧ $\color{#9a938c}{\textup{The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel / Helluva Boss fans}}$<br/>
 ✦ Rude, nonsharing yumes<br/>
 ✧ $\color{#9a938c}{\textup{avid Caitlyn/Vi haters (I don't care that much just be respectful really,,)}}$ <br/>
 </details>
