@@ -24,11 +24,10 @@ $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔
 
   <div align="left">
 
-✧ $\color{#9a938c}{\textup{TXTXTXTXTXTXTXTTXTXTXTXT}}$ <br/>
-✦ $\color{#403A93}{\textup{XTTXTXTXTXTXTXTXTXTXTXTXTXTXTXTTXTXTXTXTXTX}}$ <br/>
-✧ TXTXTXTXTXTXTXTXTX<br/>
-✦ $\color{#403A93}{\textup{XTXTXTTXTXTXTXTXTXTXT}}$<br/>
-✧ $\color{#9a938c}{\textup{XTXTXT}}$<br/>
+✧ $\color{#9a938c}{\textup{I don't usually talk first cause I get nervous, but I love to talk, I just ask for patience !! }}$ <br/>
+✦ $\color{#403A93}{\textup{Tone tags are not a necessity when talking to me, but they are greatly appreciated ! }}$ <br/>
+✧ I do not roleplay on here, so please do not pretend to with me ! I will not act like the character I am cosplaying as ,,<br/>
+
 </div>
 </details>
 
