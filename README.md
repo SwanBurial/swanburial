@@ -14,7 +14,7 @@ $\color{#403A93}{\textup{゛𝓒𝓤𝓟𝓒𝓐𝓚𝓔　　𓏵　　𝓚𝓘
 $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔𝓝.ᐟ.ᐟ.ᐟ}}$
 
 <div align="center">
-$\color{#F5F5F5}{\textup{Lesbian final boss /j}}$ <br/>
+$\color{#F5F5F5}{\textup{Lesbian final boss /j }}$ <br/>
 <div align="center"> <br/>
 $\color{#F5F5F5}{\textup{W2i !! I'm usually offtab}}$ <br/>
   <div align="center"> <br/>
