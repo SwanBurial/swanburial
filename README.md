@@ -15,11 +15,11 @@ $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔
 
 <div align="center">
 Lesbian final boss /j <br/>
-<div align="center">
+<div align="center"> <br/>
 W2i !! I'm usually offtab <br/>
-  <div align="center">
+  <div align="center"> <br/>
 C+H is very encouraged, even if we don't talk and/or have not met ! Ships are welcome as well, just don't be weird with them lwky <br/>
-    <div align="center">
+    <div align="center"> <br/>
 You can usually find me near the docks / by the stores ;-P <br/>
 <br/>
       <br/>
