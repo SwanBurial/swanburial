@@ -14,13 +14,13 @@ $\color{#403A93}{\textup{゛𝓒𝓤𝓟𝓒𝓐𝓚𝓔　　𓏵　　𝓚𝓘
 $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔𝓝.ᐟ.ᐟ.ᐟ}}$
 
 <div align="center">
-Lesbian final boss /j <br/>
+$\color{#F5F5F5}{\textup{Lesbian final boss /j}}$ <br/>
 <div align="center"> <br/>
-W2i !! I'm usually offtab <br/>
+$\color{#F5F5F5}{\textup{W2i !! I'm usually offtab}}$ <br/>
   <div align="center"> <br/>
-C+H is very encouraged, even if we don't talk and/or have not met ! Ships are welcome as well, just don't be weird with them lwky <br/>
+$\color{#F5F5F5}{\textup{C+H is encouraged, even if we don't talk and/or have not met ! Ships are welcome as well, just don't be weird with them lwky}}$ <br/>
     <div align="center"> <br/>
-If I do something that upsets you, please let me know ! I will never be upset ^_^ <br/>
+$\color{#F5F5F5}{\textup{If I do something that upsets you, please let me know ! I will never be upset ^_^}}$ <br/>
 <br/>
       <br/>
 <img src="https://64.media.tumblr.com/4b7d56533eda20eaea74b4734f3a01f6/136f59329199be26-cb/s400x600/8fb106ebcc5486258456d07607c1ce367bb19c51.pnj" width=500>
@@ -52,7 +52,7 @@ If I do something that upsets you, please let me know ! I will never be upset ^_
 
 ✧ $\color{#403A93}{\textup{Homophobes, transphobes, racists, republicans, those who identify /exclusively/ as men (genderfluid, bigender, etc, not included)}}$<br/>
 ✦ $\color{#9a938c}{\textup{Proshippers/Darkshippers/Anything problematic of the sort}}$ <br/>
-✧ {\textup{The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel / Helluva Boss fans}} <br/>
+✧ $\color{#F5F5F5}{\textup{The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel / Helluva Boss fans}}$
 ✦ $\color{#9a938c}{\textup{Anyone under 17 ! I don't mind chatting, but don't expect me to add you}}$ <br/>
 ✧ $\color{#403A93}{\textup{Rude, nonsharing yumes / 'doubles dni' ,, avid Caitlyn/Vi haters (I don't care that much, I'm just asking for you to be respectful ,,)}}$ <br/>
 </details>
