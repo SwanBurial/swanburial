@@ -20,7 +20,7 @@ $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔
 
  　
 <details>
-  <summary>$\huge{\textsf{﹒﹒𝓓NI}}$</summary> 
+  <summary>$\huge{\textsf{﹒﹒𝓑YI}}$</summary> 
 
   <div align="left">
 
@@ -34,7 +34,7 @@ $\color{#403A93}{\textup{XTXTXT}}$
 
 
 <details>
-  <summary>$\huge{\textsf{﹒﹒𝓑YI}}$</summary>
+  <summary>$\huge{\textsf{﹒﹒𝓓NI}}$</summary>
 
   <div align="left">
 
