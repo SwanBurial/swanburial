@@ -20,7 +20,7 @@ W2i !! I'm usually offtab <br/>
   <div align="center"> <br/>
 C+H is very encouraged, even if we don't talk and/or have not met ! Ships are welcome as well, just don't be weird with them lwky <br/>
     <div align="center"> <br/>
-You can usually find me near the docks / by the stores ;-P <br/>
+If I do something that upsets you, please let me know ! I will never be upset ^_^ <br/>
 <br/>
       <br/>
 <img src="https://64.media.tumblr.com/4b7d56533eda20eaea74b4734f3a01f6/136f59329199be26-cb/s400x600/8fb106ebcc5486258456d07607c1ce367bb19c51.pnj" width=500>
@@ -54,8 +54,11 @@ You can usually find me near the docks / by the stores ;-P <br/>
 ✦ $\color{#9a938c}{\textup{Rude, nonsharing yumes / 'doubles dni' people}}$ <br/>
 ✧ $\color{#403A93}{\textup{Avid Caitlyn/Vi haters (I don't care that much, I'm just asking for you to be respectful ,,)}}$ <br/>
 </details>
-　
 
+ </div>
+
+
+ </div>
 𓂃 001. 　󠁯 　󠁯•󠁏 　󠁯 　𓂃 <ins>002.</ins> 　󠁯 　󠁯•󠁏 　󠁯 　𓂃 <ins>003.</ins>
 
 
