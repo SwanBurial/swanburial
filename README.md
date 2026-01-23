@@ -38,7 +38,7 @@ $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔
 
   <div align="left">
 
-✧ $\color{#403A93}{\textup{Homophobes, transphobes, racists, republicans, etc ,,}}$
+✧ $\color{#403A93}{\textup{Homophobes, transphobes, racists, republicans, etc ,,}}$<br/>
 ✦ $\color{#9a938c}{\textup{Proshippers/Darkshippers/Anything problematic of the sort}}$ <br/>
 ✧ The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel / Helluva Boss fans <br/>
 ✦ $\color{#9a938c}{\textup{Rude, nonsharing yumes}}$ <br/>
