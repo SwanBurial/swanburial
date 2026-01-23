@@ -24,9 +24,9 @@ $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔
 
   <div align="left">
 
-✧ $\color{#9a938c}{\textup{I don't usually talk first cause I get nervous, but I love to talk, I just ask for patience whle doing so ;-) }}$ <br/>
-✦ $\color{#403A93}{\textup{Tone tags are not a necessity when talking to me, but they are greatly appreciated ! }}$ <br/>
-✧ I do not roleplay on here, so please do not pretend to with me ! I will not act like the character I am cosplaying as ,,<br/>
+✦ $\color{#9a938c}{\textup{I don't usually talk first cause I get nervous, but I love to talk, I just ask for patience whle doing so ;-) }}$ <br/>
+✧ $\color{#403A93}{\textup{Tone tags are not a necessity when talking to me, but they are greatly appreciated ! }}$ <br/>
+✦ I do not roleplay on here, so please do not pretend to with me ! I will not act like the character I am cosplaying as ,,<br/>
 
 </div>
 </details>
@@ -37,7 +37,7 @@ $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔
 
   <div align="left">
 
-✧ $\color{#403A93}{\textup{Homophobes, transphobes, racists, republicans, those who identify strictly as men, etc ,,}}$<br/>
+✧ $\color{#403A93}{\textup{Homophobes, transphobes, racists, republicans, those who identify exclusively as men ,,,}}$<br/>
 ✦ $\color{#9a938c}{\textup{Proshippers/Darkshippers/Anything problematic of the sort}}$ <br/>
 ✧ The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel / Helluva Boss fans <br/>
 ✦ $\color{#9a938c}{\textup{Rude, nonsharing yumes / 'doubles dni' people}}$ <br/>
