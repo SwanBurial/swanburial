@@ -38,6 +38,8 @@ If I do something that upsets you, please let me know ! I will never be upset ^_
 ✦ $\color{#9a938c}{\textup{I don't usually talk first cause I get nervous, but I love to talk, I just ask for patience whle doing so ;-) }}$ <br/>
 ✧ $\color{#403A93}{\textup{Tone tags are not a necessity when talking to me, but they are greatly appreciated ! }}$ <br/>
 ✦ I do not roleplay on here, so please do not pretend to with me ! I will not act like the character I am cosplaying as ,,<br/>
+✧ $\color{#403A93}{\textup{I AM anti-harassment}}$ <br/>
+✦ $\color{#9a938c}{\textup{But I do block freely ,, gulp }}$ <br/>
 
 </div>
 </details>
@@ -51,8 +53,8 @@ If I do something that upsets you, please let me know ! I will never be upset ^_
 ✧ $\color{#403A93}{\textup{Homophobes, transphobes, racists, republicans, those who identify exclusively as men ,,,}}$<br/>
 ✦ $\color{#9a938c}{\textup{Proshippers/Darkshippers/Anything problematic of the sort}}$ <br/>
 ✧ The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel / Helluva Boss fans <br/>
-✦ $\color{#9a938c}{\textup{Rude, nonsharing yumes / 'doubles dni' people}}$ <br/>
-✧ $\color{#403A93}{\textup{Avid Caitlyn/Vi haters (I don't care that much, I'm just asking for you to be respectful ,,)}}$ <br/>
+✦ $\color{#9a938c}{\textup{Anyone under 17 ! I don't mind chatting, but don't expect me to add you}}$ <br/>
+✧ $\color{#403A93}{\textup{Rude, nonsharing yumes / 'doubles dni' people ,, avid Caitlyn/Vi haters (I don't care that much, I'm just asking for you to be respectful ,,)}}$ <br/>
 </details>
 
  </div>
