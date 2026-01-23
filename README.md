@@ -1,7 +1,7 @@
 <div align="center">
 
 
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=hi+mae+pls+add+a+quote+here+idk)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=403A93&width=435&lines=In+what+mad+world+..;+would+I+trust+someone+like+you+%3F)](https://git.io/typing-svg)
 <p>
   <img src="https://i.postimg.cc/02JYpDL2/Untitled2344-20260118102410.png"width=500>
 
@@ -49,6 +49,7 @@ $\color{#9a938c}{\textup{XTXTXT}}$
 𓂃 001. 　󠁯 　󠁯•󠁏 　󠁯 　𓂃 <ins>002.</ins> 　󠁯 　󠁯•󠁏 　󠁯 　𓂃 <ins>003.</ins>
 
 </div>
+Image
 Image
 <!-- 
 
