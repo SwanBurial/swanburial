@@ -12,9 +12,8 @@
 $\color{#403A93}{\textup{゛𝓒𝓤𝓟𝓒𝓐𝓚𝓔　　𓏵　　𝓚𝓘𝓡𝓐𝑀𝑀𝒜𝒩}}$
 ʚɞ
 $\color{#9a938c}{\textup{𝓢𝓗𝓔╱𝓗𝓔𝓡　　⋮　　8𝓣𝓔𝓔𝓝.ᐟ.ᐟ.ᐟ}}$
-
-· · ─ ·ʚɞ $\color{#403A93}{\textup{𝓐𝓑𝓞𝓤𝓣 𝓜𝓔}}$ ʚɞ· ─ · · <br/> 
 <br/> 
+· · ─ ·ʚɞ $\color{#403A93}{\textup{𝓐𝓑𝓞𝓤𝓣 𝓜𝓔}}$ ʚɞ· ─ · · <br/> 
 <div align="center">
 Lesbian final boss /j <br/>
 <div align="center"> <br/>
