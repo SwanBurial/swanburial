@@ -7,8 +7,7 @@
 
 ![](https://komarev.com/ghpvc/?username=swanburial&color=403A93&style=plastic&label=KIRALINGS)
 </p>
- pee
- <div align="center">
+ 
 
 $\color{#403A93}{\textup{゛𝓒𝓤𝓟𝓒𝓐𝓚𝓔　　𓏵　　𝓚𝓘𝓡𝓐𝑀𝑀𝒜𝒩}}$
 ʚɞ
