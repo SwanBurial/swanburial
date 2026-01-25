@@ -21,7 +21,7 @@ Lesbian final boss /j <br/>
 <div align="center"> <br/>
 If I don't respond, I'm usually offtab !! W2i works best <br/>
     <div align="center"> <br/>
-  VI COSPLAYERS PLEASEEE INT... I need someone to caitvi yurimax with
+  VI COSPLAYERS PLEASEEE INT... I need someone to caitvimax with
   <div align="center"> <br/>
 C+H is encouraged, even if we don't talk and/or have not met ! Ships are welcome as well, just don't be weird with them lwky <br/>
     <div align="center"> <br/>
