@@ -19,7 +19,7 @@
 <div align="center">
 Lesbian final boss /j <br/>
 <div align="center"> <br/>
-If I don't respond, I'm usually offtab !! W2i works best <br/>
+If I don't respond, I promise I'm not ignoring you !! I'm usually offtab, so whispering gets my attention best <br/>
     <div align="center"> <br/>
   VI COSPLAYERS PLEASEEE INT... I need someone to caitvimax with
   <div align="center"> <br/>
