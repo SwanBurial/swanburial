@@ -31,7 +31,7 @@ If I do something that bothers you, please let me know ! I will never be upset o
 
  · · ─ ·ʚɞ $\color{#9a938c}{\textup{𝓘𝓝𝓣𝓔𝓡𝓔𝓢𝓣𝓢}}$ ʚɞ· ─ · · <br/> 
  <div align="center">
- Entomology <div align="center"> Arcane (BIGGEST hyperfix..) <div align="center"> Caitvi especially <div align="center"> Adrianne lenker <div align="center"> Dandy's World  <div align="center"> Spelunking <div align="center"> Rainworld  <div align="center"> My Little Pony <div align="center"> The Amazing Digital Circus <div align="center"> Cry of Fear <div align="center"> Stray <div align="center"> Little Nightmares <div align="center"> Cult of the Lamb <div align="center"> Dispatch <div align="center"> Probably more I don't remember ,,,,
+ Entomology <div align="center"> Arcane (BIGGEST hyperfix..) <div align="center"> Caitvi especially <div align="center"> Adrianne lenker <div align="center"> Dandy's World  <div align="center"> Spelunking <div align="center"> Rainworld  <div align="center"> Wings of Fire <div align="center"> My Little Pony <div align="center"> The Amazing Digital Circus <div align="center"> Cry of Fear <div align="center"> Stray <div align="center"> Little Nightmares <div align="center"> Cult of the Lamb <div align="center"> Dispatch <div align="center"> Probably more I don't remember ,,,,
  <br/>
 <br/>
    <br/>
