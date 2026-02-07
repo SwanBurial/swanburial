@@ -64,7 +64,7 @@ If I do something that bothers you, please let me know ! I will never be upset o
 ✦ $\color{#9a938c}{\textup{Anyone under 17 ! I don't mind chatting, but don't expect me to add you}}$ <br/>
 ✧ $\color{#403A93}{\textup{Rude, nonsharing yumes / 'doubles dni' ,, avid Caitlyn/Vi haters (I don't care that much, I'm just asking for you to be respectful)}}$ <br/>
 </details>
-
+$\color{#9a938c}{\textup{lalala}}$
  </div>
 
 ##
