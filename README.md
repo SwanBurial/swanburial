@@ -57,7 +57,6 @@ If I do something that bothers you, please let me know ! I will never be upset o
   <summary>$\huge{\textsf{﹒﹒𝓓NI}}$</summary>
 
   <div align="left">
-$\color{#403A93}{\textup{example text}}$
 ✧ $\color{#403A93}{\textup{Homophobes, transphobes, racists, republicans, those who identify exclusively as men (genderfluid, bigender, etc, not included)}}$<br/>
 ✦ $\color{#9a938c}{\textup{Proshippers/Darkshippers/Anything problematic of the sort / if you do not support it yourself but surround yourself with people who do}}$ <br/>
 ✧ $\color{#F5F5F5}{\textup{The Coffin of Andy and Leyley / Ranfen / Hazbin Hotel / Helluva Boss fans}}$ <br/>
