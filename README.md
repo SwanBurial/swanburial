@@ -17,7 +17,7 @@
  · · ─ ·ʚɞ $\color{#403A93}{\textup{𝓐𝓑𝓞𝓤𝓣 𝓜𝓔}}$ ʚɞ· ─ · · <br/> 
 
 <div align="center">
-Lesbian final boss /j <br/>
+Lesbian final boss <br/>
 <div align="center"> <br/>
 If I don't respond, I promise I'm not ignoring you !! I'm usually offtab, so whispering gets my attention best <br/>
     <div align="center"> <br/>
