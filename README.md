@@ -47,7 +47,7 @@ If I do something that bothers you, please let me know ! I will never be upset o
 ✧ $\color{#403A93}{\textup{Tone tags are not a necessity when talking to me, but they are greatly appreciated ! }}$ <br/>
 ✦ $\color{#F5F5F5}{\textup{I do not roleplay on here, so please do not pretend to with me. I will not act like the character I am cosplaying as}}$ <br/>
 ✧ $\color{#403A93}{\textup{I am anti-harassment but I do block freely ,, gulp }}$ <br/>
-✦ $\color{#9a938c}{\textup{Joke flirting / srs flirting is fine I really dgaf}}$ <br/>
+✦ $\color{#9a938c}{\textup{Joke flirting / srs flirting is fine I really don't mind}}$ <br/>
 
 </div>
 </details>
