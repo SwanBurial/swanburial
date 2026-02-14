@@ -20,8 +20,6 @@
 Lesbian final boss <br/>
 <div align="center"> <br/>
 If I don't respond, I promise I'm not ignoring you !! I'm usually offtab, so whispering gets my attention best <br/>
-    <div align="center"> <br/>
-  VI COSPLAYERS PLEASEEE INT... I need someone to caitvimax with
   <div align="center"> <br/>
 C+H is encouraged, even if we don't talk and/or have not met ! Ships are welcome as well, just don't be weird with them lwky <br/>
     <div align="center"> <br/>
@@ -47,7 +45,7 @@ If I do something that bothers you, please let me know ! I will never be upset o
 ✧ $\color{#403A93}{\textup{Tone tags are not a necessity when talking to me, but they are greatly appreciated ! }}$ <br/>
 ✦ $\color{#F5F5F5}{\textup{I do not roleplay on here, so please do not pretend to with me. I will not act like the character I am cosplaying as}}$ <br/>
 ✧ $\color{#403A93}{\textup{I am anti-harassment but I do block freely ,, gulp }}$ <br/>
-✦ $\color{#9a938c}{\textup{Joke flirting / srs flirting is fine I really don't mind}}$ <br/>
+✦ $\color{#9a938c}{\textup{Joke flirting / srs flirting is fine I really don't care}}$ <br/>
 
 </div>
 </details>
